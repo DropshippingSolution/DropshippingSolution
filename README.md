@@ -4,7 +4,7 @@ DSers AliExpress Dropshipping Tool
 
 About
 
-DSers is a leading company that provides advanced e-commerce solutions. Since 2018, DSers has been installed nearly one million times, processed 150 million orders worldwide, and earned more than 6,300 five-star reviews on Shopify. (https://www.dsers.com/)
+DSers is a leading company that provides advanced e-commerce solutions. Since 2018, DSers has been installed nearly one million times, processed 150 million orders worldwide, and earned more than 6,300 five-star reviews on Shopify. (https://www.dsers.com/blog/)
 
 Services It Provides
 
